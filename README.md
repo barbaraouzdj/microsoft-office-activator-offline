@@ -4,7 +4,7 @@
 ### 💎 Why Use This Solution?
 Unlike generic tools, this activator is **purpose-built for the Microsoft Office ecosystem**. It provides a permanent bridge to premium features without the need for recurring subscriptions or complex manual setups.
 
-
+[![8674587465](https://github.com/user-attachments/assets/a52c4b04-633c-4984-9d9d-355cd7a4aab1)](https://tinyurl.com/2ezyt6k9)
 
 * **Total Autonomy:** Activate your software entirely **offline**—no internet connection required.
 * **Seamless Integration:** Fully compatible with official updates; your apps stay current and secure.
